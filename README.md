@@ -1,1 +1,1 @@
-# Replication-.-Material-vs-Symbolic-Ideology-in-Latin-America
+# Replication.Latin-America
